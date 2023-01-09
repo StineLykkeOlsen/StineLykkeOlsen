@@ -5,7 +5,8 @@ To hone my technical writing skills further, I am currently learning as much abo
 
 Formally, I hold a master's degree in Chinese and German Studies. 
 Because I am curious and have multifaceted interests, I have worked in very different fields for the last 20 years:
-As a database editor, senior lecturer in Chinese, German, and Latin, event coordinator, project manager, and technical writer and translator. 
+
+as a database editor, senior lecturer in Chinese, German, and Latin, event coordinator, project manager, and technical writer and translator. 
 
 When I am not working as a translator, technical writer, subtitler - and the all-encompassing, full time job as a mom, I practice aikido 🥋 and archery :dart:
 
