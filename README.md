@@ -8,7 +8,7 @@ Because I am curious and have multifaceted interests, I have worked in very diff
 
 database editor, senior lecturer in Chinese, German, and Latin, event coordinator, project manager, and technical writer and translator. 
 
-When I am not working as a translator, technical writer, subtitler - and the all-encompassing, full time job as a mom, I practice aikido 🥋, open water swimming :swimmer: and archery :dart:
+When I am not working as a translator, technical writer, subtitler - and the all-encompassing, full time role as a mom, I practice aikido 🥋, open water swimming :swimmer: and archery :dart:
 
 
 
